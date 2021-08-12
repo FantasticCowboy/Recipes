@@ -21,6 +21,7 @@ about 2 cups bread flour, plus more as needed / can be all purpose as well
 
 # Instructions
 ## Bread
+```
 1. Add in water at 100 F to 115 F or whatever temperature is recommended by your brand of yeast
 2. Add in sugar and yeast
 3. Let it sit for 10-15 minutes
@@ -37,9 +38,12 @@ about 2 cups bread flour, plus more as needed / can be all purpose as well
 14. Cook on one side for a few minutes or until large bubbles begun to form
 15. Flip and cook on other side
 16. Brush both sides with warm garlic butter - MORE IS BETTER - garlic will soak into naan 
+```
 
 ## Garlic bread
+```
 1. Melt butter in pan
 2. wait until butter is bubbling, but make sure not to burn butter
 3. Mix in minced garlice
 4. Turn off heat 
+```
