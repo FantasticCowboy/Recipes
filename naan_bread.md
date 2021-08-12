@@ -7,23 +7,23 @@ Something to test in regards to naan bread is whether or not to use yeast, bakin
 
 # Ingredients
 ## Bread
-1/2 cup warm water
-1 teaspoon sugar
-1 package dry active yeast
-1/4 cup plain yogurt
-about 2 cups bread flour, plus more as needed / can be all purpose as well
-1 teaspoon kosher salt (or 1/2 tsp fine salt)
-1 tablespoon garlic butter
-## Garluic Bytter
-1/2 cup melted butter
-4 cloves finely minced garlic
+* 1/2 cup warm water
+* 1 teaspoon sugar
+* 1 package dry active yeast
+* 1/4 cup plain yogurt
+* about 2 cups bread flour, plus more as needed / can be all purpose as well
+* 1 teaspoon kosher salt (or 1/2 tsp fine salt)
+* 1 tablespoon garlic butter
+## Garlic Bytter
+* 1/2 cup melted butter
+* 4 cloves finely minced garlic
 
 # Tools
-Mixing bowl
-Rolling pin
-Cast iron skillet
-Pan (for garlic butter)
-Saran wrap or something to cover bowl to let dough rise
+* Mixing bowl
+* Rolling pin
+* Cast iron skillet
+* Pan (for garlic butter)
+* Saran wrap or something to cover bowl to let dough rise
 
 # Instructions
 ## Bread
