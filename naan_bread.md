@@ -18,6 +18,12 @@ about 2 cups bread flour, plus more as needed / can be all purpose as well
 1/2 cup melted butter
 4 cloves finely minced garlic
 
+# Tools
+Mixing bowl
+Rolling pin
+Cast iron skillet
+Pan (for garlic butter)
+Saran wrap or something to cover bowl to let dough rise
 
 # Instructions
 ## Bread
@@ -25,14 +31,14 @@ about 2 cups bread flour, plus more as needed / can be all purpose as well
 2. Add in sugar and yeast
 3. Let it sit for 10-15 minutes
 4. Add yogart, flour, salt, 1 tsp garlic infused butter
-5. Mix ingredients until everything is pulled off sides of wall. Make sure dough is not too sticky. If dough is dry add water, is dough is sticky add yeast.
+5. Mix ingredients until everything is pulled off sides of wall of bowl. Make sure dough is not too sticky. If dough is dry add water, if dough is sticky add yeast.
 6. Kneed dough for 3-4 minutes
 7. Transfer into bowl and coat with oil or garlic butter to prevent drying when rising
 8. Cover and let rise for 1-2 hours
 9. Transfer onto table and form balls of dough, amount of balls and size of each ball is up to you
-10. Light sprinkle tough balls with flour
+10. Light sprinkle dough balls with flour and cover with saran wrap
 11. Let dough balls rise again for 15 mins
-12. Rool out dough balls into ovals or spheres. Thickness of rolled dough should be 1/8th of an inch.
+12. Roll out dough balls into ovals or spheres. Thickness of rolled dough should be 1/8th of an inch.
 13. Add to extremeley hot skillet
 14. Cook on one side for a few minutes or until large bubbles begun to form
 15. Flip and cook on other side
